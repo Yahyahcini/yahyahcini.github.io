@@ -1,1 +1,1 @@
-***One night, I was bored and had the idea to flirt with my girlfriend. I thought, “I have good skills in web development, so why not use them?” That night, I created this website. It was really funny while making it 😍💻***
+***One night, I was bored and had the idea to flirt with my girlfriend. I thought, “I have good skills in web development, so why not use them?” That night, I created this small website. It was really funny while making it 😍💻***
